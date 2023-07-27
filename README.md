@@ -1,4 +1,4 @@
-# TARIF HAQUE Resume
+# TARIF HAQUE
 ## Product Manager
 
 Proven Product Manager with 5+ years of experience. Working in World Bank Funded Very High Value BISDP Project. Increased the MRR of weMail (SaaS) by 123.67%. Worked as a consultant on 10+ high-value web development projects.
